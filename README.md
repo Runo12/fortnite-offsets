@@ -1,0 +1,1 @@
+For the latest and UPDATED fortnite offsets join the discord https://discord.gg/f4FQm7nzBm
